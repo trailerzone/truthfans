@@ -13,3 +13,5 @@ Think of this as if Wikipedia, Facebook, OpenStax & GPT-3 Had A Baby It Would Be
 
 Interested in helping? Email: Levi@NowInviteMe.com
 
+
+We Want To Help Perserve History, And help Bring great minds like you into the conversation of the future. You are bright.
