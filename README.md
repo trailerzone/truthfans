@@ -11,7 +11,10 @@ Each user has a digital ID, you can choose to stay completely anonymous in your 
 
 Think of this as if Wikipedia, Facebook, OpenStax & GPT-3 Had A Baby It Would Be, TruthFans.Com
 
-Interested in helping? Email: Levi@NowInviteMe.com
+Interested in helping? Email: Levi@NowInviteMe.com 
+
+If you are in Seattle, Washington, let's grab a socially distanced coffee! My treat :)
 
 
 We Want To Help Perserve History, And help Bring great minds like you into the conversation of the future. You are bright.
+
