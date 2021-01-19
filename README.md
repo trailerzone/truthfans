@@ -8,3 +8,5 @@ Acquire tokens for participating in the conversation. And tip others for their k
 
 Each user has a digital ID, you can choose to stay completely anonymous in your contribution on the platform.
 
+Think of Wikipedia + A University Classroom = TruthFans.Com
+
